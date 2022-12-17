@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @evangelistakharlo
-- 👀 I’m interested in Music
-- 🌱 I’m currently learning Japanese language
+- 👀 I’m interested in ** anything **
 - 📫 Send me a mail at evangelista.kharlo.permejo@gmail.com
 
 <!---
